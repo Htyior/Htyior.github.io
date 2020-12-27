@@ -1,1 +1,0 @@
-# All my cool projects
